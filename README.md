@@ -10,7 +10,8 @@
 
 - 💬 Ask me about **a lit bit portion of anything**
 
-- 📫 How to reach me **myselfabhishek01@gmail.com**
+- 📫 For_anything_else
+drop a mail here- **myselfabhishek01@gmail.com**
 
 - ⚡ Fun fact **memes is everything...!**
 
