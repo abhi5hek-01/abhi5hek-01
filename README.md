@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **dsa with c++**
 
-- 💬 Ask me about **anything**
+- 💬 Ask me about **a lit bit portion of anything**
 
 - 📫 How to reach me **myselfabhishek01@gmail.com**
 
