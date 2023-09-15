@@ -1,4 +1,4 @@
-![logo](https://github.com/abhi5hek-01/abhi5hek-01/blob/main/21%20Fotos%2C%20die%20niemand%20versteht%2C%20der%20kein%20Programmierer%20ist.jpeg)
+![logo](https://github.com/abhi5hek-01/abhi5hek-01/blob/main/bb2b5b8b-d481-4254-8dbd-8ae51f6f0a14.jpeg)
 <h1 align="center">Hi 👋, I'm abhishek !</h1>
 <h3 align="center"> LET'S_START</h3>
 <img align="right" alt="coding" width="400" src=https://media.tenor.com/cX92mi1p-NYAAAAd/coding-anime.gif
