@@ -1,4 +1,4 @@
-[![MasterHead](https://in.pinterest.com/pin/807833251925845268/)]
+[![MasterHead](https://in.pinterest.com/pin/807833251925845268/.jpeg)]
 
 <h1 align="center">Hi 👋, I'm abhishek !</h1>
 <h3 align="center"> LET'S_START</h3>
